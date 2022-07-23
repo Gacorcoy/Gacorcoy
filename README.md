@@ -26,7 +26,7 @@
 </tr>
 <tr>
 <td><g-emoji class="g-emoji" alias="white_check_mark" fallback-src="https://github.githubassets.com/images/icons/emoji/unicode/2705.png">✅</g-emoji> Minimal Deposit</td>
-<td><g-emoji class="g-emoji" alias="heavy_dollar_sign" fallback-src="https://github.githubassets.com/images/icons/emoji/unicode/1f4b2.png">💲</g-emoji> 20.000</td>
+<td><g-emoji class="g-emoji" alias="heavy_dollar_sign" fallback-src="https://github.githubassets.com/images/icons/emoji/unicode/1f4b2.png">💲</g-emoji> 10.000</td>
 </tr>
 <tr>
 <td><g-emoji class="g-emoji" alias="white_check_mark" fallback-src="https://github.githubassets.com/images/icons/emoji/unicode/2705.png">✅</g-emoji> Mata Uang</td>
@@ -96,7 +96,7 @@
 <h2 dir="auto"><a id="user-content-daftar-nama-nama-situs-judi-online-game-slot-4d-paling-gacor-terbaru-hari-ini" class="anchor" aria-hidden="true" href="#daftar-nama-nama-situs-judi-online-game-slot-4d-paling-gacor-terbaru-hari-ini"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M7.775 3.275a.75.75 0 001.06 1.06l1.25-1.25a2 2 0 112.83 2.83l-2.5 2.5a2 2 0 01-2.83 0 .75.75 0 00-1.06 1.06 3.5 3.5 0 004.95 0l2.5-2.5a3.5 3.5 0 00-4.95-4.95l-1.25 1.25zm-4.69 9.64a2 2 0 010-2.83l2.5-2.5a2 2 0 012.83 0 .75.75 0 001.06-1.06 3.5 3.5 0 00-4.95 0l-2.5 2.5a3.5 3.5 0 004.95 4.95l1.25-1.25a.75.75 0 00-1.06-1.06l-1.25 1.25a2 2 0 01-2.83 0z"></path></svg></a>Daftar Nama-nama Situs Judi Online Game Slot 4D Paling Gacor Terbaru Hari Ini</h2>
 <p dir="auto">Bagi Anda selaku penggemar judi online Indonesia pasti sering dong untuk mencari nama-nama situs judi online resmi yang ada di Indonesia. Pada kesempatan kali ini, kami dengan senang hati akan merangkumkan dan membagikan daftar nama-nama situs judi online resmi game slot gacor terbaru yang paling sering di cari di pencarian google Indonesia, yaitu:</p>
 <p dir="auto">PADI777</p>
-<p dir="auto">BANK%)*</p>
+<p dir="auto">BANK508</p>
 <p dir="auto">SJO777</p>
 
 <h2 dir="auto"><a id="user-content-kumpulan-daftar-situs-judi-slot-4d-resmi-paling-gacor-terbarik-2022" class="anchor" aria-hidden="true" href="#kumpulan-daftar-situs-judi-slot-4d-resmi-paling-gacor-terbarik-2022"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M7.775 3.275a.75.75 0 001.06 1.06l1.25-1.25a2 2 0 112.83 2.83l-2.5 2.5a2 2 0 01-2.83 0 .75.75 0 00-1.06 1.06 3.5 3.5 0 004.95 0l2.5-2.5a3.5 3.5 0 00-4.95-4.95l-1.25 1.25zm-4.69 9.64a2 2 0 010-2.83l2.5-2.5a2 2 0 012.83 0 .75.75 0 001.06-1.06 3.5 3.5 0 00-4.95 0l-2.5 2.5a3.5 3.5 0 004.95 4.95l1.25-1.25a.75.75 0 00-1.06-1.06l-1.25 1.25a2 2 0 01-2.83 0z"></path></svg></a>Kumpulan Daftar Situs Judi Slot 4d Resmi Paling Gacor Terbarik 2022</h2>
